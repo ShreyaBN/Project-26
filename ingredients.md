@@ -1,0 +1,21 @@
+Ingredients for making Pizza:-
+
+Yeast,
+Flour,
+Sugar,
+Half cup luke warm water,
+Salt,
+Olive oil,
+Normal Water,
+Moist Napkin,
+Tomatoes,
+Garlic,
+Red chilli flakes,
+Italian herbs,
+chrushed pepper,
+Onions,
+Bell peppers,
+Mushrooms,
+Olives,
+Cheese,
+Cornmeal.

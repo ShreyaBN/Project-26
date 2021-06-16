@@ -1,2 +1,1 @@
-# Project-26
-Try It!!
+This is a Pizza recipe.
